@@ -1,1 +1,1 @@
-## Peronal Portfolio
+## Personal Portfolio
